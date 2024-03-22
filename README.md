@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BishopMagiPrg
+- 👋 Hi, I’m @BishopMagiPrg aka Bishop.Magician
 - 👀 I’m interested in Programming and Cyber Security.
 - 🌱 I’m currently learning a little bit off all.
 - 💞️ I’m looking to collaborate on anyone who whant help.
