@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming and Cyber Security.
 - 🌱 I’m currently learning a little bit off all.
 - 💞️ I’m looking to collaborate on anyone who whant help.
-- 📫 How to reach me with my repository (for now).
+- 📫 How to reach me with my repository (for now) - BishopMagiPrg.
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I love to help and learn.
 
